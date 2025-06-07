@@ -1,4 +1,4 @@
-# 👨‍💻 Hi, I'm Evans martey Jackson Korley 
+# 👨‍💻 Hi, I'm Evans Martey Jackson Korley 
 ### Cybersecurity Analyst | Ethical Hacker | Threat Hunter
 
 ---
